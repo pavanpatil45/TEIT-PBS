@@ -1,4 +1,4 @@
-## TEIT PROJECT BASED SEMINAR(PBS)
+## TEIT PROJECT BASED SEMINAR (PBS)
 
 ## Connect with me:  
 <a href="https://instagram.com/p4v4n" target="blank"><img align="center" src="https://github.com/pavanpatil45/pavanpatil45/blob/main/connect with me/insta.png" alt="instagram" width="30" /></a>&nbsp;
